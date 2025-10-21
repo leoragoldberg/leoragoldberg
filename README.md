@@ -1,4 +1,4 @@
 ### Hi there 👋
 
-∙ 👩🏻‍💻 I'm a Data Analyst  
+∙ 👩🏻‍💻 I'm a Senior Analytics Engineer  
 ∙ 😄 My pronouns are she/her
